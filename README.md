@@ -1,2 +1,8 @@
-# mughal-digital-global.
-Digital marketing repository for Mughal Digital Global, managing social media strategies and client growth assets.
+# Mughal Digital Marketing
+
+Specializing in SEO, social media strategy, and data-driven marketing solutions.
+
+### Services
+* **Search Engine Optimization (SEO):** Boosting organic visibility and rankings.
+* **Social Media Strategy:** Engaging audiences across all digital
+

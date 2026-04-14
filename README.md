@@ -1,8 +1,13 @@
-# Mughal Digital Marketing
+## 🌐 Global Contact Offices
 
-Specializing in SEO, social media strategy, and data-driven marketing solutions.
+### 🇦🇪 Middle East Operations (WhatsApp)
+* **Direct Line:** [+971 50 514 1313](https://wa.me/971505141313)
+* **Status:** VIP Priority Support
 
-### Services
-* **Search Engine Optimization (SEO):** Boosting organic visibility and rankings.
-* **Social Media Strategy:** Engaging audiences across all digital
+### 🇵🇰 South Asia Operations
+* **Direct Line:** [+92 344 0045623](https://wa.me/923440045623)
+* **Status:** Operations & Support
 
+### ✉️ Official Business Inquiry
+* **Email:** [mughalmughalfordigitalmarketin@gmail.com](mailto:mughalmughalfordigitalmarketin@gmail.com)
+* **Response Time:** Within 24 Hours

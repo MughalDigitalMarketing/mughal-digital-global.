@@ -9,5 +9,5 @@
 * **Status:** Operations & Support
 
 ### ✉️ Official Business Inquiry
-* **Email:** [mughalmughalfordigitalmarketin@zohomal.com](mailto:mughalmughalfordigitalmarketin@zohomail.com)
+* **Email:** [mughalmughalfordigitalmarketin@zohomail.com](mailto:mughalmughalfordigitalmarketin@zohomail.com)
 * **Response Time:** Within 24 Hours
